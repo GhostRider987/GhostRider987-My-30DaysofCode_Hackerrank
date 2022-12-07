@@ -1,0 +1,1 @@
+# GhostRider987-My-30DaysofCode_Hackerrank
